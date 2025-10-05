@@ -37,7 +37,7 @@ Once the ideas are flowing, that’s when I bring in the more logical side—ana
 When I’m not coding, you’ll find me:
 
 * 🧶 Knitting
-* 🖍️� Illustration
+* 🖍️ Illustration
 * 🏺 Making ceramics at home
 * 📖 Reading (currently: Tiny experiments by Anne-Laure Le Cunff)
 * 📓 Journaling for inner discovery
