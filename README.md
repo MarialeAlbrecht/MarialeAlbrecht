@@ -39,7 +39,7 @@ When I’m not coding, you’ll find me:
 * 🧶 Knitting
 * 🖍️ Illustration
 * 🏺 Making ceramics at home
-* 📖 Reading (currently: Tiny experiments by Anne-Laure Le Cunff)
+* 📖 Reading (currently: El camino del artista)
 * 📓 Journaling for inner discovery
 * ✨ Following wherever my creativity takes me
 
