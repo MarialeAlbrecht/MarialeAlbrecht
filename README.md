@@ -39,14 +39,14 @@ When I’m not coding, you’ll find me:
 * 🧶 Knitting
 * 🖍️ Illustration
 * 🏺 Making ceramics at home
-* 📖 Reading (currently: El camino del artista)
+* 📖 Reading (currently: Buttermilk Graffiti)
 * 📓 Journaling for inner discovery
 * ✨ Following wherever my creativity takes me
 
 ---
 
 ## 🚀 Check my Project Portfolio
-[Project Portfolio](/Albrecht_Portfolio2025.pdf)
+[Project Portfolio](https://drive.google.com/file/d/14HrI0E6JrbjlDjM6mWWO2NDXnR7TSBhM/view?usp=sharing)
 
 
 
